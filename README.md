@@ -4,4 +4,4 @@ Code By Weitz é um repositório onde trago artigos sobre o maravilhoso mundo da
 
 Artigos com assuntos diversos, com finalidade de repassar conhecimentos para frente.
 
-Made By Luiz Weitz with ❤️in 🇧🇷
+Made By Luiz Weitz with ❤️ in 🇧🇷
